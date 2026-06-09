@@ -1,4 +1,4 @@
-
+Experience attack on titan revolution like never before with attack on titan revolution Script smart, the #1 Script. Includes auto-farm and infinite
 
 
 
